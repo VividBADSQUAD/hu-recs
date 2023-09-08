@@ -1,7 +1,9 @@
 HU SONG RECOMMENDATIONS!! 
 
-[MATURE WARNING BUT NO NSFW TOPICS]
-![IdePkH](https://github.com/undeadhollywood/hu-recs/assets/143967818/ac68a17a-42da-4d43-b004-31bb56b80e2d)
+[MATURE WARNING BUT NO NSFW]
+
+![IdePkH](https://github.com/undeadhollywood/hu-recs/assets/143967818/d8a520fe-815a-4062-bbff-18ff522e4da2)
+
 
 
 ✘ for when you want to fuck everything up
