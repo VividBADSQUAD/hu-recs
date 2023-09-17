@@ -16,11 +16,11 @@ GLORY / MOTHER MURDER / S.C.A.V.A / ALREADY DEAD
 
 ✘ the more softer side of HU
 
-RAIN / SING / GOTTA LET GO / NOBODY'S WATCHING
+RAIN / BELIEVE / GOTTA LET GO / NOBODY'S WATCHING
 
 ✘ honorable mentions
 
-SELL YOUR SOUL / LION / BELIEVE / OUTSIDE
+SELL YOUR SOUL / LION / SING / OUTSIDE
 
 ++ MORE but ask if you care ^_^
 
